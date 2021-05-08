@@ -1,2 +1,2 @@
 # FatBitch_69
-* https://nikhit-s.github.io/FatBitch_69/
+* https://anandur32.github.io/FatBitch_69/
